@@ -1,2 +1,3 @@
-# just-do
-Just do it man 
+Guys please help me i am new in hacking world 
+So help me learn about ethical hacking.
+Please help me 🙏
